@@ -1,2 +1,2 @@
-# discord-bot
-Hi i'm testing this
+Updates!
+I am a boring normal person so no updates!
